@@ -7,4 +7,5 @@ https://revistas.uteq.edu.ec/ws/journals.php
 
 Actividad:
 
-![image](https://github.com/user-attachments/assets/2b4bdc8e-03a0-41f2-aa42-176a53444d5e)
+![image](https://github.com/user-attachments/assets/8fd2daed-9eac-49bb-aea5-fa46654d1dca)
+
